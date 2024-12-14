@@ -3,6 +3,8 @@
 
 i act depend on how u treat me
 
+did ya know that i heart my bf!!!
+
 ღ . HELLO!! HIHII!! im 𝐌𝐞𝐢-𝐋𝐮𝐦𝐢𝐚𝐧𝐠 u can call me 𝐌𝐞𝐢𝐥𝐮 OR ANY NICKNAMES I LOVE NAMES!!! . BISEXUAL [] xe/xem pronoun pls . . ![1000028839](https://github.com/user-attachments/assets/b6f43022-0bc0-4b06-81f0-0475b7c69d17)
  more nicknames in my pronouns page!! 
 
