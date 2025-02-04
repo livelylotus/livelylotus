@@ -10,7 +10,7 @@ i DO NOT help with supporter limits so i will ignore you or nicely decline your 
 
 ![1000028841](https://github.com/user-attachments/assets/bb0cd509-9ddd-4326-91f5-ba27c0b5d0c2)
 
-im js ur local hyperfixationist kid ┆ i love dinosaurs!! ︴CURRENT HYPERFIXATION ARE BSD AND MXTX ꒰ will always be my comf ꒱ ![1000028832](https://github.com/user-attachments/assets/84750022-61f9-4d37-937f-cb2fbb140ef2)
+im js ur local hyperfixationist kid ┆ i love dinosaurs!! ︴CURRENT HYPERFIXATION IS FORSAKEN ꒰ ![1000028832](https://github.com/user-attachments/assets/84750022-61f9-4d37-937f-cb2fbb140ef2)
 
 and and im a MSI ENTHUSIAST ![1000028835](https://github.com/user-attachments/assets/366e04a2-15b9-4bec-a5bc-7f771672f7fe)
 
