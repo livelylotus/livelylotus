@@ -5,9 +5,7 @@ LITERALLY shadow the hedgehog and wei wuxian  u guys dont get it
 
 i DO NOT help with supporter limits so i will ignore you or nicely decline your offer.
 
-did ya know that i heart my husband!!!. HIII
-
-ღ . HELLO!! HIHII!! im 𝐌𝐞𝐢-𝐋𝐮𝐦𝐢𝐚𝐧𝐠 u can call me 𝐌𝐞𝐢𝐥𝐮 OR ANY NICKNAMES I LOVE NAMES!!! . GENDERFLUID BISEXUAL [] she/he is ok but xe/xem pronouns preferred . . ![1000028839](https://github.com/user-attachments/assets/b6f43022-0bc0-4b06-81f0-0475b7c69d17)
+ღ . HELLO!! HIHII!! im 𝐌𝐞𝐢-𝐋𝐮𝐦𝐢𝐚𝐧𝐠 u can call me 𝐌𝐞𝐢𝐥𝐮 OR ANY NICKNAMES I LOVE NAMES!!! . GENDERFLUID LESBIAN [] she/he is ok but xe/xem pronouns preferred . . ![1000028839](https://github.com/user-attachments/assets/b6f43022-0bc0-4b06-81f0-0475b7c69d17)
  more nicknames in my pronouns page!! 
 
 ![1000028841](https://github.com/user-attachments/assets/bb0cd509-9ddd-4326-91f5-ba27c0b5d0c2)
