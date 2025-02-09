@@ -1,3 +1,4 @@
+![1000004329](https://github.com/user-attachments/assets/8e6b21a7-3481-4598-8b56-d56bb78dd363)
 ![1000028833](https://github.com/user-attachments/assets/d62acd79-197c-4d90-ab41-32b787b4edda)
  𝚢𝚘𝚞 𝚌𝚊𝚗'𝚝 𝚎𝚜𝚌𝚊𝚙𝚎, 𝚜𝚒𝚕𝚕𝚢. 𝚝𝚑𝚒𝚜 𝚒𝚜 𝚢𝚘𝚞𝚛 𝚏𝚛𝚎𝚎𝚍𝚘𝚖. ![1000028834](https://github.com/user-attachments/assets/6734479a-fa87-4eca-a761-fe5d16b55c81)
 
@@ -14,7 +15,6 @@ im js ur local hyperfixationist kid ┆ i love dinosaurs!! ︴I LOVE ROBLOX GAME
 
 𝙸 𝙻𝙾𝚅𝙴 𝙼𝙸𝚃𝚂𝙺𝙸 𝙰𝙽𝙳 𝙻𝙰𝚄𝙵𝙴𝚈!!
 
-![1000028841](https://github.com/user-attachments/assets/c985b3𝚍𝟾-𝟷𝚎𝟽𝟷-𝟺𝚌𝚍𝟾-𝚋𝟶𝟸𝚌-𝟿𝟾𝟷𝟸𝚋𝟻𝟿𝚋𝟼𝟾𝟺𝟿) 
 
 ✧PLS SIGN MY ATA . .
 
