@@ -26,4 +26,5 @@ and and im a MSI ENTHUSIAST ![1000028835](https://github.com/user-attachments/as
  
 ![1000028838](https://github.com/user-attachments/assets/8ed03692-7980-495f-b4aa-f523b238a28c)
 . im always cud friendly and int friendly so talk to me:33 (unless name said otherwise) ![1000028831](https://github.com/user-attachments/assets/d8de8fbe-566f-4cd6-a5ab-b53d4a6f61bc)
-![1000028830](https://github.com/user-attachments/assets/bd179f20-892b-4cee-8ba3-02f1f67d7ee9)
+![1000004327](https://github.com/user-attachments/assets/ff27fa3c-5d39-445a-b375-3dcb42280f70)
+
