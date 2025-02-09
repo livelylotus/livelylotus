@@ -1,7 +1,6 @@
 ![1000004329](https://github.com/user-attachments/assets/8e6b21a7-3481-4598-8b56-d56bb78dd363)
-![1000028833](https://github.com/user-attachments/assets/d62acd79-197c-4d90-ab41-32b787b4edda)
- 
- 𝐲𝐨𝐮 𝐜𝐚𝐧'𝐭 𝐞𝐬𝐜𝐚𝐩𝐞, 𝐬𝐢𝐥𝐥𝐲. 𝐭𝐡𝐢𝐬 𝐢𝐬 𝐘𝐎𝐔𝐑 𝐟𝐫𝐞𝐞𝐝𝐨𝐦. ![1000028834](https://github.com/user-attachments/assets/6734479a-fa87-4eca-a761-fe5d16b55c81)
+
+![1000028833](https://github.com/user-attachments/assets/d62acd79-197c-4d90-ab41-32b787b4edda)𝐲𝐨𝐮 𝐜𝐚𝐧'𝐭 𝐞𝐬𝐜𝐚𝐩𝐞, 𝐬𝐢𝐥𝐥𝐲. 𝐭𝐡𝐢𝐬 𝐢𝐬 𝐘𝐎𝐔𝐑 𝐟𝐫𝐞𝐞𝐝𝐨𝐦. ![1000028834](https://github.com/user-attachments/assets/6734479a-fa87-4eca-a761-fe5d16b55c81)
 
 I love cuddles, c+h encouraged!, mainly w2i
 
