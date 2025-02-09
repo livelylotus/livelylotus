@@ -1,7 +1,7 @@
 ![1000028833](https://github.com/user-attachments/assets/d62acd79-197c-4d90-ab41-32b787b4edda)
  gσт υя нєαят ιη α нєα∂ℓσ¢к ![1000028834](https://github.com/user-attachments/assets/6734479a-fa87-4eca-a761-fe5d16b55c81)
 
-LITERALLY shadow the hedgehog and wei wuxian  u guys dont get it
+I love cuddles, c+h encouraged!, mainly w2i
 
 i DO NOT help with supporter limits so i will ignore you or nicely decline your offer.
 
@@ -10,7 +10,7 @@ i DO NOT help with supporter limits so i will ignore you or nicely decline your 
 
 ![1000028841](https://github.com/user-attachments/assets/bb0cd509-9ddd-4326-91f5-ba27c0b5d0c2)
 
-im js ur local hyperfixationist kid ┆ i love dinosaurs!! ︴CURRENT HYPERFIXATION IS FORSAKEN ꒰ ![1000028832](https://github.com/user-attachments/assets/84750022-61f9-4d37-937f-cb2fbb140ef2)
+im js ur local hyperfixationist kid ┆ i love dinosaurs!! ︴I LOVE ROBLOX GAMES!! ꒰ ![1000028832](https://github.com/user-attachments/assets/84750022-61f9-4d37-937f-cb2fbb140ef2)
 
 and and im a MSI ENTHUSIAST ![1000028835](https://github.com/user-attachments/assets/366e04a2-15b9-4bec-a5bc-7f771672f7fe)
 
