@@ -1,4 +1,3 @@
-![1000004332](https://github.com/user-attachments/assets/d3f33e46-06fc-4d21-aa12-c1f1104a4612)
 𝐲𝐨𝐮 𝐜𝐚𝐧'𝐭 𝐞𝐬𝐜𝐚𝐩𝐞,𝐬𝐢𝐥𝐥𝐲. 𝐭𝐡𝐢𝐬 𝐢𝐬 𝐘𝐎𝐔𝐑 𝐟𝐫𝐞𝐞𝐝𝐨𝐦.![1000004332](https://github.com/user-attachments/assets/7aa1256e-244d-4db1-b2fe-3e79ebf11c66)
 
 ![1000004328](https://github.com/user-attachments/assets/9b0361a3-41cf-417d-95c5-acb9b5b055a0)
