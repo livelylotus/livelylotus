@@ -36,7 +36,7 @@ im js ur local hyperfixationist kid ┆ i love dinosaurs!! ︴I LOVE ROBLOX GAME
 ![1000028841](https://github.com/user-attachments/assets/0cc010ac-7309-47a8-bb83-abb7c714c733)
 
 ![1000004339](https://github.com/user-attachments/assets/b2fbf1aa-72d7-42c4-96fd-daa6b1222d36)
-┆ what a stupid dummy you are. i ENVY you. ︴![1000004338](https://github.com/user-attachments/assets/b2491c9c-8166-4609-a244-97ec35980b87)
+┆ what a stupid dummy you are. i ENVY you.
 
  
 ![1000028838](https://github.com/user-attachments/assets/8ed03692-7980-495f-b4aa-f523b238a28c)
