@@ -1,5 +1,5 @@
 ![1000028833](https://github.com/user-attachments/assets/d62acd79-197c-4d90-ab41-32b787b4edda)
- gσт υя нєαят ιη α нєα∂ℓσ¢к ![1000028834](https://github.com/user-attachments/assets/6734479a-fa87-4eca-a761-fe5d16b55c81)
+ 𝚢𝚘𝚞 𝚌𝚊𝚗'𝚝 𝚎𝚜𝚌𝚊𝚙𝚎, 𝚜𝚒𝚕𝚕𝚢. 𝚝𝚑𝚒𝚜 𝚒𝚜 𝚢𝚘𝚞𝚛 𝚏𝚛𝚎𝚎𝚍𝚘𝚖. ![1000028834](https://github.com/user-attachments/assets/6734479a-fa87-4eca-a761-fe5d16b55c81)
 
 I love cuddles, c+h encouraged!, mainly w2i
 
