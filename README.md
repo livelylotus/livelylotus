@@ -1,7 +1,8 @@
 ![1000004332](https://github.com/user-attachments/assets/d3f33e46-06fc-4d21-aa12-c1f1104a4612)
 𝐲𝐨𝐮 𝐜𝐚𝐧'𝐭 𝐞𝐬𝐜𝐚𝐩𝐞,𝐬𝐢𝐥𝐥𝐲. 𝐭𝐡𝐢𝐬 𝐢𝐬 𝐘𝐎𝐔𝐑 𝐟𝐫𝐞𝐞𝐝𝐨𝐦.![1000004332](https://github.com/user-attachments/assets/7aa1256e-244d-4db1-b2fe-3e79ebf11c66)
 
-![1000004330](https://github.com/user-attachments/assets/184cde6f-cdd5-4288-ab95-1b1d52a05bc0)
+![1000004328](https://github.com/user-attachments/assets/9b0361a3-41cf-417d-95c5-acb9b5b055a0)
+
 
 I love cuddles, c+h encouraged!, mainly w2i . ![1000004331](https://github.com/user-attachments/assets/5cfa4a03-b076-4463-9868-f979b3c39174)
 
@@ -9,7 +10,7 @@ I love cuddles, c+h encouraged!, mainly w2i . ![1000004331](https://github.com/u
 ![1000004333](https://github.com/user-attachments/assets/1650bb9f-8da9-4098-87d7-c38134a78165)
  . i DO NOT help with supporter limits so i will ignore you or nicely decline your offer.
 
-ღ . HELLO!! HIHII!! im 𝐌𝐞𝐢-𝐋𝐮𝐦𝐢𝐚𝐧𝐠 u can call me 𝐌𝐞𝐢𝐥𝐮 or 𝐀𝐳𝐮𝐫𝐞 OR ANY NICKNAMES I LOVE NAMES!!! . ![1000004335](https://github.com/user-attachments/assets/209b1ba5-9f84-4da9-ab4f-faccfc2e6539)
+ღ . HELLO!! HIHII!! im 𝐋𝐲𝐧𝐧𝐢𝐞 or 𝐀𝐳𝐮𝐫𝐞 . ![1000004335](https://github.com/user-attachments/assets/209b1ba5-9f84-4da9-ab4f-faccfc2e6539)
 GENDERFLUID LESBIAN [] she/he is ok but xe/xem pronouns preferred . . ![1000004332](https://github.com/user-attachments/assets/4c4191f6-8715-495f-8237-95d31abef199)
 
  ![1000004332](https://github.com/user-attachments/assets/ae548476-cd80-451a-8339-57f62b17dbde) .
@@ -33,6 +34,9 @@ im js ur local hyperfixationist kid ┆ i love dinosaurs!! ︴I LOVE ROBLOX GAME
  . . ꒰ read carrd for more info!! ths is js a brief explaination of me!!! ꒱
 
 ![1000028841](https://github.com/user-attachments/assets/0cc010ac-7309-47a8-bb83-abb7c714c733)
+
+![1000004339](https://github.com/user-attachments/assets/b2fbf1aa-72d7-42c4-96fd-daa6b1222d36)
+┆ what a stupid dummy you are. i ENVY you. ︴![1000004338](https://github.com/user-attachments/assets/b2491c9c-8166-4609-a244-97ec35980b87)
 
  
 ![1000028838](https://github.com/user-attachments/assets/8ed03692-7980-495f-b4aa-f523b238a28c)
