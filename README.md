@@ -1,12 +1,12 @@
 ![1000004329](https://github.com/user-attachments/assets/8e6b21a7-3481-4598-8b56-d56bb78dd363)
 ![1000028833](https://github.com/user-attachments/assets/d62acd79-197c-4d90-ab41-32b787b4edda)
- 𝚢𝚘𝚞 𝚌𝚊𝚗'𝚝 𝚎𝚜𝚌𝚊𝚙𝚎, 𝚜𝚒𝚕𝚕𝚢. 𝚝𝚑𝚒𝚜 𝚒𝚜 𝚢𝚘𝚞𝚛 𝚏𝚛𝚎𝚎𝚍𝚘𝚖. ![1000028834](https://github.com/user-attachments/assets/6734479a-fa87-4eca-a761-fe5d16b55c81)
+ 𝐲𝐨𝐮 𝐜𝐚𝐧'𝐭 𝐞𝐬𝐜𝐚𝐩𝐞, 𝐬𝐢𝐥𝐥𝐲. 𝐭𝐡𝐢𝐬 𝐢𝐬 𝐘𝐎𝐔𝐑 𝐟𝐫𝐞𝐞𝐝𝐨𝐦. ![1000028834](https://github.com/user-attachments/assets/6734479a-fa87-4eca-a761-fe5d16b55c81)
 
 I love cuddles, c+h encouraged!, mainly w2i
 
 i DO NOT help with supporter limits so i will ignore you or nicely decline your offer.
 
-ღ . HELLO!! HIHII!! im 𝐌𝐞𝐢-𝐋𝐮𝐦𝐢𝐚𝐧𝐠 u can call me 𝐌𝐞𝐢𝐥𝐮 or Azure OR ANY NICKNAMES I LOVE NAMES!!! . GENDERFLUID LESBIAN [] she/he is ok but xe/xem pronouns preferred . . 
+ღ . HELLO!! HIHII!! im 𝐌𝐞𝐢-𝐋𝐮𝐦𝐢𝐚𝐧𝐠 u can call me 𝐌𝐞𝐢𝐥𝐮 or 𝐀𝐳𝐮𝐫𝐞 OR ANY NICKNAMES I LOVE NAMES!!! . GENDERFLUID LESBIAN [] she/he is ok but xe/xem pronouns preferred . . 
  more nicknames in my pronouns page!! 
 
 ![1000004328](https://github.com/user-attachments/assets/2d2062de-d337-4a33-b892-57b94821e751)
