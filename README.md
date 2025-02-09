@@ -5,18 +5,18 @@ I love cuddles, c+h encouraged!, mainly w2i
 
 i DO NOT help with supporter limits so i will ignore you or nicely decline your offer.
 
-ღ . HELLO!! HIHII!! im 𝐌𝐞𝐢-𝐋𝐮𝐦𝐢𝐚𝐧𝐠 u can call me 𝐌𝐞𝐢𝐥𝐮 or Azure OR ANY NICKNAMES I LOVE NAMES!!! . GENDERFLUID LESBIAN [] she/he is ok but xe/xem pronouns preferred . . ![1000028839](https://github.com/user-attachments/assets/b6f43022-0bc0-4b06-81f0-0475b7c69d17)
+ღ . HELLO!! HIHII!! im 𝐌𝐞𝐢-𝐋𝐮𝐦𝐢𝐚𝐧𝐠 u can call me 𝐌𝐞𝐢𝐥𝐮 or Azure OR ANY NICKNAMES I LOVE NAMES!!! . GENDERFLUID LESBIAN [] she/he is ok but xe/xem pronouns preferred . . 
  more nicknames in my pronouns page!! 
 
-![1000028841](https://github.com/user-attachments/assets/bb0cd509-9ddd-4326-91f5-ba27c0b5d0c2)
+![1000004328](https://github.com/user-attachments/assets/2d2062de-d337-4a33-b892-57b94821e751)
 
-im js ur local hyperfixationist kid ┆ i love dinosaurs!! ︴I LOVE ROBLOX GAMES!! ꒰ ![1000028832](https://github.com/user-attachments/assets/84750022-61f9-4d37-937f-cb2fbb140ef2)
+im js ur local hyperfixationist kid ┆ i love dinosaurs!! ︴I LOVE ROBLOX GAMES!! ꒰ 
 
-and and im a MSI ENTHUSIAST ![1000028835](https://github.com/user-attachments/assets/366e04a2-15b9-4bec-a5bc-7f771672f7fe)
+𝙸 𝙻𝙾𝚅𝙴 𝙼𝙸𝚃𝚂𝙺𝙸 𝙰𝙽𝙳 𝙻𝙰𝚄𝙵𝙴𝚈!!
 
-![1000028841](https://github.com/user-attachments/assets/c985b3d8-1e71-4cd8-b02c-9812b59b6849)
+![1000028841](https://github.com/user-attachments/assets/c985b3𝚍𝟾-𝟷𝚎𝟽𝟷-𝟺𝚌𝚍𝟾-𝚋𝟶𝟸𝚌-𝟿𝟾𝟷𝟸𝚋𝟻𝟿𝚋𝟼𝟾𝟺𝟿) 
 
-✧PLS SIGN MY ATA . . ![1000028836](https://github.com/user-attachments/assets/79e38977-f305-479e-b28b-e19bedeb5e38)
+✧PLS SIGN MY ATA . .
 
 ![1000028837](https://github.com/user-attachments/assets/ea66c12a-05ec-4be7-bb56-ea2d835e1835)
  . . ꒰ read carrd for more info!! ths is js a brief explaination of me!!! ꒱
