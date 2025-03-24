@@ -24,6 +24,6 @@ w2i
 ![1000037507](https://github.com/user-attachments/assets/eec20fad-079d-473d-999b-3f80e994efc7) /
 always non-verbal if you are interested in talking to me, whisper me throughly
 
-bleuh i like yaelokre, laufey and mitski:PP (comf), Azuretime is my comf ship btw so match me plezz!!!^_^
+bleuh i like Kiltro, yaelokre, laufey and mitski:PP (comf), Azuretime is my comf ship btw so match me plezz!!!^_^
 
 ![1000037502](https://github.com/user-attachments/assets/28b59e8e-ae29-46ae-95c8-15107004338c)
