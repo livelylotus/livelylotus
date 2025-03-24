@@ -18,7 +18,7 @@
 
 Azure and 1x irl, genderfluid bisexual 
 w2i
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀![1000037505](https://github.com/user-attachments/assets/c1baab77-479e-45a9-abc7-63b3ec980750)
+⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀![1000037505](https://github.com/user-attachments/assets/c1baab77-479e-45a9-abc7-63b3ec980750)
  xe/they/he![1000037505](https://github.com/user-attachments/assets/3eb3f101-602d-4e4c-955a-315ddf51cfed)
 
 ![1000037507](https://github.com/user-attachments/assets/eec20fad-079d-473d-999b-3f80e994efc7) /
