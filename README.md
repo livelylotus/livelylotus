@@ -1,7 +1,6 @@
 <p align="center">
   I love cuddles, c+h encouraged!, mainly w2i.
   ![1000004331](https://github.com/user-attachments/assets/5cfa4a03-b076-4463-9868-f979b3c39174)
-</p>
 
 <p align="center">
   ![1000004333](https://github.com/user-attachments/assets/1650bb9f-8da9-4098-87d7-c38134a78165)
